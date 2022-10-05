@@ -2,6 +2,6 @@
 
 ## Ik heb dit aangepast!
 ## Ik vind dit zeer
-![SchoolGebouw](https://imgur.com/clMHVy5)
+![SchoolGebouw](https://pbs.twimg.com/media/FJZRdZ-X0AMFkM6.jpg)
 
 [Klik hier om naar de site van het Media College te gaan!](https://welkombijma.nl/opleidingen/softwaredeveloper/)
